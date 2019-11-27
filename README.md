@@ -1,1 +1,1 @@
-# Pemodelan-Dan-Simulasi-Komputer
+Di dalam File .Rar terdapat beberapa gambar
